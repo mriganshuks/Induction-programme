@@ -6,7 +6,7 @@
 
 ## **Day 1 – 31 July 2025**
 
-**8:30 AM – 10:30 AM**  Path ceremony at Gurudwara Sahib  
+**8:30 AM – 10:30 AM**  Path at Gurudwara Sahib  
 **10:30 AM – 11:00 AM**  Snack Break  
 **11:00 AM – 2:00 PM**  Student Induction Programme  
   – Guest of Honour: Ravinder Garg (Chief Engineer, Municipal Corporation Ludhiana)  
