@@ -1,7 +1,7 @@
 **Name:** Mriganshu Kumar Singh  
 **Branch:** IT-C  
 **Registration Number:** [25102875]  
-**Mobile Number (WhatsApp):** 8427144836
+**Mobile Number (WhatsApp):** 8427144836  
 **Email:** mriganshukumarsingh@gmail.com 
 
 ## **Day 1 – 31 July 2025**
