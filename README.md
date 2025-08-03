@@ -46,7 +46,7 @@ An extended break allowed students to rest and recharge for the upcoming session
 *Topic:* "Food: A Pivotal Role in Student's Overall Wellness"  
 The session covered the importance of nutrition in maintaining mental and physical health, especially for hostel students and those under academic stress.
 
-**2:00 PM – 3:00 PM**  Caustic Club Session & Induction Launch  
-The Caustic Club introduced its creative events and officially launched the induction activities. Students were invited to participate in upcoming cultural and technical programs.
+**2:00 PM – 3:00 PM**  Causmic Club Session & Induction Launch  
+The Causmic Club introduced its creative events and officially launched the induction activities. Students were invited to participate in upcoming cultural and technical programs.
 
 ---
