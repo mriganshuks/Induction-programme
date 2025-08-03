@@ -50,3 +50,12 @@ The session covered the importance of nutrition in maintaining mental and physic
 The Causmic Club introduced its creative events and officially launched the induction activities. Students were invited to participate in upcoming cultural and technical programs.
 
 ---
+
+## **Day 3 – 02 August 2025**
+
+**9:00 AM – 11:00 AM**  Expert Lecture by Dr. Jaswinder Singh  
+Dr. Jaswinder Singh, delivered a deeply insightful lecture where he beautifully blended core scientific concepts with spiritual philosophy. He discussed how energy, vibrations, and the laws of nature align with inner consciousness and the human soul. His unique ability to connect physics with spirituality inspired students to look at science not just as a subject, but as a way of life.
+
+**11:00 AM – 1:00 PM**  Expert Lecture by Dr. Priya Darshni  
+Topic: *"Right Understanding and Universal Human Values"*  
+Dr. Priya Darshni emphasized the importance of developing a clear understanding of the self, relationships, and harmony in nature. She explained how right understanding forms the foundation of a value-based life and helps students make informed, responsible, and ethical decisions in both personal and professional domains.
