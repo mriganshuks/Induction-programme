@@ -4,27 +4,49 @@
 **Mobile Number (WhatsApp):** 8427144836  
 **Email:** mriganshukumarsingh@gmail.com 
 
+---
+
 ## **Day 1 – 31 July 2025**
 
-**8:30 AM – 10:30 AM**  Path at Gurudwara Sahib  
+**8:30 AM – 10:30 AM**  Path ceremony at Gurudwara Sahib  
+The day began with a spiritual and peaceful ceremony at the Gurudwara Sahib on campus, creating a calm and positive start for the first-year students.
+
 **10:30 AM – 11:00 AM**  Snack Break  
+Students had a light refreshment break, helping them relax and interact with peers.
+
 **11:00 AM – 2:00 PM**  Student Induction Programme  
-  – Guest of Honour: Ravinder Garg (Chief Engineer, Municipal Corporation Ludhiana)  
-  – Anchor: Taranpreet Kaur  
-  – Address by Dean Academics: Dr. Akshay Girdhar  
-  – Principal’s Address: Dr. Sehajpal  
-  – Address by Harpreet Kaur Grewal (HOD, Applied Sciences)  
-  – Motivational Talk by CSE Topper: Sangam Arora – Argusoft, Gujarat  
-  – Motivational Talk by IT Topper: Arshpreet Singh – Airtel, Gurugram  
-  – Address by Dr. Kulwinder Singh Mann (HOD, IT Department)  
-**2:00 PM – 3:00 PM**  Departmental Orientation (IT Department)
+The formal ceremony was conducted in the college auditorium, highlighting GNDEC’s legacy and academic excellence. The event included the following sessions:
+
+- **Anchor:** *Ms. Taranpreet Kaur* – Managed the flow of the event smoothly and introduced each guest with enthusiasm.
+- **Guest of Honour:** *Mr. Ravinder Garg* – Chief Engineer, Municipal Corporation Ludhiana; shared insights on civic responsibility and student discipline.
+- **Dean Academics:** *Dr. Akshay Girdhar* – Spoke about the importance of time management, goal setting, and academic integrity.
+- **Principal:** *Dr. Sehajpal* – Highlighted the college’s 70 years of excellence and inspired students to contribute to GNDEC’s legacy.
+- **HOD, Applied Sciences:** *Dr. Harpreet Kaur Grewal* – Explained the importance of basic sciences and building a strong conceptual foundation.
+- **CSE Topper (2025):** *Sangam Arora* – Software Engineer at Argusoft, Gujarat; shared his journey, preparation methods, and placement experience.
+- **IT Topper (2025):** *Arshpreet Singh* – Automation Engineer at Airtel, Gurugram; gave practical advice on balancing academics and personal development.
+- **HOD, IT:** *Dr. Kulwinder Singh Mann* – Gave a formal introduction to the IT Department, vision, goals, and future prospects for students.
+
+**2:00 PM – 3:00 PM**  Departmental Orientation  
+Students visited their respective departments. Faculty members explained the academic structure, evaluation pattern, lab facilities, and departmental activities.
 
 ---
 
 ## **Day 2 – 1 August 2025**
 
 **9:30 AM – 10:30 AM**  English Proficiency Test  
+The test evaluated grammar, comprehension, and vocabulary to gauge the current level of students and help improve communication skills.
+
 **10:30 AM – 11:30 AM**  Maths Proficiency Test  
+The test focused on core concepts from previous classes to ensure that students are ready to tackle engineering-level mathematics.
+
 **11:30 AM – 1:00 PM**  Break  
-**1:00 PM – 2:00 PM**  Expert Lecture by Dr. Arashdeep Singh on *"Food: A Pivotal Role in Student's Overall Wellness"*  
-**2:00 PM – 3:00 PM**  Session by Caustic Club and Launch of Induction Activities
+An extended break allowed students to rest and recharge for the upcoming session.
+
+**1:00 PM – 2:00 PM**  Expert Lecture by Dr. Arashdeep Singh  
+*Topic:* "Food: A Pivotal Role in Student's Overall Wellness"  
+The session covered the importance of nutrition in maintaining mental and physical health, especially for hostel students and those under academic stress.
+
+**2:00 PM – 3:00 PM**  Caustic Club Session & Induction Launch  
+The Caustic Club introduced its creative events and officially launched the induction activities. Students were invited to participate in upcoming cultural and technical programs.
+
+---
